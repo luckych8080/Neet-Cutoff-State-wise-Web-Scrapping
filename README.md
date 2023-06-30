@@ -1,0 +1,31 @@
+# Neet-Cutoff State-wise  Web-Scrapping
+
+ -  https://medicine.careers360.com/articles/neet-cutoff-assam
+ -  https://medicine.careers360.com/articles/neet-cutoff-assam
+ -  https://medicine.careers360.com/articles/neet-cutoff-bihar
+ -  https://medicine.careers360.com/articles/neet-cutoff-chhattisgarh
+ -  https://medicine.careers360.com/articles/neet-cutoff-goa
+ -  https://medicine.careers360.com/articles/neet-cutoff-hp
+ -  https://medicine.careers360.com/articles/neet-cutoff-haryana
+ -  https://medicine.careers360.com/articles/neet-cutoff-ipu
+ -  https://medicine.careers360.com/articles/neet-cutoff-j-k
+ -  https://medicine.careers360.com/articles/neet-cutoff-karnataka
+ -  https://medicine.careers360.com/articles/neet-cutoff-kerala
+ -  https://medicine.careers360.com/articles/neet-cutoff-maharashtra
+ -  https://medicine.careers360.com/articles/neet-cutoff-mp
+ -  https://medicine.careers360.com/articles/neet-cutoff-odisha
+ -  https://medicine.careers360.com/articles/neet-cutoff-punjab
+ -  https://medicine.careers360.com/articles/neet-cutoff-rajasthan
+ -  https://medicine.careers360.com/articles/neet-cutoff-meghalaya
+ -  https://medicine.careers360.com/articles/neet-cutoff-tripura
+ -  https://medicine.careers360.com/articles/neet-cutoff-telangana
+ -  https://medicine.careers360.com/articles/neet-cutoff-tamil-nadu
+ -  https://medicine.careers360.com/articles/neet-cutoff-jharkhand
+ -  https://medicine.careers360.com/articles/neet-cutoff-uttarakhand
+ -  https://medicine.careers360.com/articles/neet-cutoff-up
+ -  https://medicine.careers360.com/articles/neet-cutoff-west-bengal
+ -  https://medicine.careers360.com/articles/neet-cutoff-gujarat
+ -  https://medicine.careers360.com/articles/neet-cutoff-du
+ -  https://medicine.careers360.com/articles/neet-cutoff-chandigarh
+ -  https://medicine.careers360.com/articles/neet-cutoff-amu
+ -  https://medicine.careers360.com/articles/neet-cutoff-afmc
